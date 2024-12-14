@@ -117,4 +117,6 @@ https://docs.google.com/document/d/16aG_HzVPOp_YMPyllkzWZhgpTUV-JxTJ/edit?usp=dr
 
 And it's 7 Hat brainstorm,:
 
+# And uts alternative Post:
+https://rentry.co/gbw9ksv7
 
